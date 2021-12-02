@@ -1,2 +1,0 @@
-# dawid.coder
-Devonshire School
